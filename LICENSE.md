@@ -1,4 +1,4 @@
-
+Elite Marvel Rivals traps ESP é o melhor Marvel Rivals traps ESP com morte instantânea e radar. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
